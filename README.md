@@ -5,7 +5,7 @@ The Only FxSound Preset You Will Ever Need!
 
 This Preset has been carefully crafted to bring out the best in FxSound enhancer.
 
-Giving you the best in Crystallized Surround Sound Immersive Musical Universe.
+Giving you the best in Dissected Crystallized Immersive Surround Sound Musical Universe.
 
 ---
 
